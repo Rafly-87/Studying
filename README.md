@@ -1,0 +1,2 @@
+# Studying
+Ribet lah pokoknya.
